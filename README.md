@@ -1,1 +1,1 @@
-# My-Wallet-Investinf-for-tomorrow
+# My-Wallet-Investing-for-tomorrow
